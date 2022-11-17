@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LowkeLEAKS
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning coding and leaking
+- 📫 How to reach me carsongosser0@gmail.com
